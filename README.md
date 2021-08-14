@@ -1,4 +1,4 @@
-# Special thanks to :-
+## Useful links :-
 
 https://www.youtube.com/channel/UCLC_9gy8E0w_40AMHpaHWQQ
 
